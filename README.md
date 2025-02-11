@@ -5,3 +5,4 @@
 
 
 I dedicate myself to music and programming. I am a common man and I am happy with that.
+Living on London from Venezuela.
